@@ -1,5 +1,9 @@
 # 🎓 McKinsey.org Forward Program Certificate & Badge
 
+![Image](https://github.com/user-attachments/assets/cf202826-e877-42bd-bd14-6b5afa268661)
+
+![Image](https://github.com/user-attachments/assets/d35d04b9-7a6f-4b95-9591-a23a4146586e)
+
 > **"Skills for the Future of Work, Delivered Today."**  
 > — McKinsey.org
 
