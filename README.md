@@ -2,7 +2,7 @@
 
 ![Image](https://github.com/user-attachments/assets/cf202826-e877-42bd-bd14-6b5afa268661)
 
-![Image](https://github.com/user-attachments/assets/d35d04b9-7a6f-4b95-9591-a23a4146586e)
+
 
 > **"Skills for the Future of Work, Delivered Today."**  
 > — McKinsey.org
@@ -14,6 +14,8 @@
 The **McKinsey Forward Program** is a global online learning initiative by **McKinsey.org** designed to equip early-career professionals with the practical skills and mindsets needed to thrive in the modern workplace.
 
 I’m proud to have successfully completed this prestigious program, earning both the **certificate** 📜 and **digital badge** 🏅 that validate my commitment to continuous growth and impactful learning.
+
+![Image](https://github.com/user-attachments/assets/d35d04b9-7a6f-4b95-9591-a23a4146586e)
 
 ---
 
