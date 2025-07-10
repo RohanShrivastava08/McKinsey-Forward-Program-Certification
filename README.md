@@ -1,17 +1,12 @@
-![mckinseyy](https://github.com/user-attachments/assets/e96edfd5-2ce7-4ac5-9a87-c27125411d21)# 🎓 McKinsey.org Forward Program Certificate, Badge & Case Study
+# 🎓 McKinsey.org Forward Program Certificate, Badge & Case Study
+
+![mckinseyy](https://github.com/user-attachments/assets/e96edfd5-2ce7-4ac5-9a87-c27125411d21)
 
 ![Image](https://github.com/user-attachments/assets/cf202826-e877-42bd-bd14-6b5afa268661)
 
-
 <img width="1081" alt="Screenshot 2025-07-09 at 10 02 48 PM" src="https://github.com/user-attachments/assets/1496ce9f-ac02-4469-a571-24f2e54cdb2d" />
 
-
 ![mckinseyy](https://github.com/user-attachments/assets/28ef7c55-09a5-4bdf-8ed6-5a1a824e2b7d)
-
-
-
----
-
 
 
 ## ✅ Program Overview
